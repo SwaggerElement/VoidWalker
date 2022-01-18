@@ -1,1 +1,1 @@
-# Kristaps Zvejsalnieks
+# Kristaps
